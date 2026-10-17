@@ -31,9 +31,9 @@
 
 ## الدعم الفني
 
-**روضتي برو V1.0**
-تصميم وتطوير by tweety-code ✨
-الدعم الفني واتساب: [07874567344](https://wa.me/9647874567344)
+**روضتي برو V1.0**  
+تصميم وتطوير by tweety-code ✨  
+الدعم الفني واتساب: [07874567344](https://wa.me/9647874567344)  
 انستا: [ayat_alhaykali](https://instagram.com/ayat_alhaykali)
 
 </div>
